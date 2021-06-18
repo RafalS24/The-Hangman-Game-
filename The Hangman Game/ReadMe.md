@@ -1,0 +1,1 @@
+I code because programmers are in high demand all of the time. This means you can have a wide range of potential jobs as you become more proficient and experienced in programming and also Programmers’ earnings are higher than most other career fields.
